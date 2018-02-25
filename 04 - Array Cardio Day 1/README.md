@@ -1,1 +1,0 @@
-To see the project, go here: 
